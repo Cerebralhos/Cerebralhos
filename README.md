@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Cerebralhos
 - 👀 I’m interested in ...letting my squirrel brain take control
-- 🌱 I’m currently learning ... coding -- legal assistant trying to make my life easier
+- 🌱 I’m currently learning ... coding -- currently working as a legal assistant & trying to make my life easier
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
